@@ -1,1 +1,1 @@
-Have no clue how ti use it properly!
+Have no clue how to use it properly!
